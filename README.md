@@ -12,7 +12,7 @@ https://github.com/user-attachments/assets/9e0d9c52-7327-46fc-884b-bd5b3a7925e4
 
 
 ### A little abt me
-hello folks, i'm into ghost: b.c, crk or ob, or anything anyways. chinese gambling games also included lmao
+hello folks, i'm into ghost: b.c, crk or ob, or anything anyways. chinese gambling games also included lmao, such as r99, gi, hsr, zzz or whatever you name it.
 i am legal, i am a man and actively make a sex jokes lol ofc w concent. duh.
 don't involve me into a tupid drama in a virtual game.
 
