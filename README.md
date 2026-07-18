@@ -17,6 +17,6 @@ i am legal, i am a man and actively make a sex jokes lol ofc w concent. duh.
 don't involve me into a tupid drama in a virtual game.
 
 ---
-> go follow the cool dad @abyssmonarchspouse
+> go follow the cool dad @abyssmonarchspouse, he will do the great service to you. sometimes it's just go like this:
 
 https://github.com/user-attachments/assets/2b23556e-eb79-4520-83a1-bfa3879cf92e
