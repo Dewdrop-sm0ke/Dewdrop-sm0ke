@@ -16,9 +16,12 @@ hello folks, i'm into ghost: b.c, crk or ob, or anything anyways. chinese gambli
 i am legal, i am a man and actively make a sex jokes lol ofc w concent. duh.
 don't involve me into a tupid drama in a virtual game.
 
+> KINS
+> Dewdrop Ghoul aka sodo, Hugo Vlad, Lyney, strawberry crepe cookie and idk you could tell me i guess
+
 ---
 ---
-> go follow the cool dad @abyssmonarchspouse, he will do the great service to you. sometimes it's just go like this:
+go follow the cool dad @abyssmonarchspouse, he will do the great service to you. sometimes it's just go like this:
 
 
 https://github.com/user-attachments/assets/049e7ffc-b182-4980-8ec4-e19a813a4be6
