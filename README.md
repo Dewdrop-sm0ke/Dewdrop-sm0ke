@@ -1,4 +1,4 @@
-### LIST OF LOSERS:
+## LIST OF LOSERS:
 homophobic, racist, mysogynist, anti-feminist, incest enjoyer, "too" religious people, pedphile, posers...
 people w lack of character also dni. but dw i'm not that mean. 
 i do bite if you ask me to. and honestly? approach me if you want to, i am mostly chill and yes i am friendly w concent and boundary
@@ -16,7 +16,7 @@ hello folks, i'm into ghost: b.c, crk or ob, or anything anyways. chinese gambli
 i am legal, i am a man and actively make a sex jokes lol ofc w concent. duh.
 don't involve me into a tupid drama in a virtual game.
 
-> KINS
+> ## KINS:
 > Dewdrop Ghoul aka sodo, Hugo Vlad, Lyney, strawberry crepe cookie and idk you could tell me i guess
 
 ---
