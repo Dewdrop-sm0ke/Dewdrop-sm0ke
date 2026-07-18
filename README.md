@@ -6,9 +6,9 @@ i do bite if you ask me to. and honestly? approach me if you want to, i am mostl
 > note: for THOSE people. imagine being alt but not knowing anything about it. and worse, being homophobic is dumb.
 
 ---
+---
 
-https://github.com/user-attachments/assets/096388dd-dfa4-44c6-b992-43c39221e88b
-
+https://github.com/user-attachments/assets/9e0d9c52-7327-46fc-884b-bd5b3a7925e4
 
 
 ### A little abt me
@@ -17,6 +17,10 @@ i am legal, i am a man and actively make a sex jokes lol ofc w concent. duh.
 don't involve me into a tupid drama in a virtual game.
 
 ---
+---
 > go follow the cool dad @abyssmonarchspouse, he will do the great service to you. sometimes it's just go like this:
 
-https://github.com/user-attachments/assets/2b23556e-eb79-4520-83a1-bfa3879cf92e
+
+https://github.com/user-attachments/assets/049e7ffc-b182-4980-8ec4-e19a813a4be6
+
+
